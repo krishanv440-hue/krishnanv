@@ -5,7 +5,7 @@
 ---
 
 ## 🌐 Socials  
-[![Instagram Badge](https://img.shields.io/badge/-Instagram-E4405F?style=flat&logo=Instagram&logoColor=white)](https://instagram.com/YOUR_INSTAGRAM)  
+[![Instagram Badge](https://www.instagram.com/invites/contact/?utm_source=ig_contact_invite&utm_medium=copy_link&utm_content=ndtgid4)
 
 ---
 
